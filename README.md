@@ -1,0 +1,2 @@
+- 👋 Hi, We're Prototeq Digital Solutions
+- ICT firm based in Nairobi Kenya.
